@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything; I'm grateful for the opportunity to learn more
 - 📫 How to reach me: alayaedan@gmail.com
 - 😄 Pronouns: She <3
-- ⚡ Fun fact: I'm a Dancer; in Aero, Contemporary, Ballet and Ballroom 
+- ⚡ Fun fact: Competitively Dance and Drive
 
 <!---
 AlayaFaBray/AlayaFaBray is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
